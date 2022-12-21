@@ -1,5 +1,7 @@
 ### Aline 👋
 
+![Beautyful](https://play-lh.googleusercontent.com/85WnuKkqDY4gf6tndeL4_Ng5vgRk7PTfmpI4vHMIosyq6XQ7ZGDXNtYG2s0b09kJMw=w240-h480-rw)
+
 **Citation:**
 
 >Le courage n'est pas l'absence de peur, mais la capacité de vaincre ce qui fait peur. ...
