@@ -1,7 +1,4 @@
 ### Aline 👋
-![img](https://user-images.githubusercontent.com/121049169/208942275-191e57a3-74dc-404a-b0d0-9e7a8e88f957.jpg)
-
-![Beautyful](https://play-lh.googleusercontent.com/85WnuKkqDY4gf6tndeL4_Ng5vgRk7PTfmpI4vHMIosyq6XQ7ZGDXNtYG2s0b09kJMw=w240-h480-rw)
 
 **Citation:**
 
