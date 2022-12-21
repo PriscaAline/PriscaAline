@@ -1,5 +1,7 @@
-### Aline Prisca Etudiante en Informatique 👋
+### Ma vie a moi c'est le Christ 👋
 
+
+![Beautyfull](/Desktop/photo profil/Holy_SURP_Hovhannes_Church.jpg "Photo")
 
 **Citation:**
 
@@ -9,7 +11,7 @@
 >
 >Fais de ta vie un rêve, et d'un rêve, une réalité. ...
 >
->Le souvenir, c'est la présence invisible. ...
+>>Le souvenir, c'est la présence invisible. ...
 >
 >Vis comme si tu devais mourir demain.
 <!--
