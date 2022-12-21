@@ -1,8 +1,6 @@
 ### Ma vie a moi c'est le Christ 👋
 
 
-![Beautyfull!](C:\Users\SIA ALINE PRISCA\Desktop\photo profil\img.jpg)
-
 **Citation:**
 
 >Le courage n'est pas l'absence de peur, mais la capacité de vaincre ce qui fait peur. ...
