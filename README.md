@@ -1,7 +1,7 @@
 ### Ma vie a moi c'est le Christ 👋
 
 
-![Beautyfull](C:\Users\SIA ALINE PRISCA\Desktop\photo profil\img.jpg)
+[!Beautyfull](C:\Users\SIA ALINE PRISCA\Desktop\photo profil\img.jpg)
 
 **Citation:**
 
